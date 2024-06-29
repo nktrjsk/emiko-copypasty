@@ -1,5 +1,8 @@
 # Emikovy básně
 
+> [!CAUTION]
+> Tento kontent obsahuje velmi nevhodné vtipy. Zároveň nevyjadřuje mé názory a nemá se mnou nic společného (možná jen modbidnost mého humoru).
+
 Sbírka Emikových průpovídek
 
 ![Thousand yard stare](thousand-yard-stare.jpg)
