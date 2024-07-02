@@ -1,7 +1,7 @@
 # Emikovy básně
 
 > [!CAUTION]
-> Tento kontent obsahuje velmi nevhodné vtipy. Zároveň nevyjadřuje mé názory a nemá se mnou nic společného (možná jen modbidnost mého humoru).
+> Tento kontent obsahuje velmi nevhodné vtipy. Zároveň nevyjadřuje mé názory a nemá se mnou nic společného (možná jen morbidnost mého humoru).
 
 Sbírka Emikových průpovídek
 
